@@ -1,3 +1,3 @@
-<img src="https://www.upsieutoc.com/images/2020/09/04/vlcsnap-2020-09-03-23h44m16s386.png" alt="vlcsnap-2020-09-03-23h44m16s386.png" border="0" />
+<img src="https://github.com/anhphantien/anhphantien/blob/master/Suni%20H%E1%BA%A1%20Linh.png" />
 
 ### Ngô Đặng Thu Giang 🇻🇳🇻🇳🇻🇳
